@@ -1,0 +1,2 @@
+Unveiling the Passionate Mind Behind Seamless Software and Research
+As a seasoned software developer, I bring expertise in full-stack development. With my passion for problem-solving, I excel in languages like C++, Python and Swift. My collaborative approach and knack for innovation have contributed to the success of diverse projects. As a continuous learner, I stay at the forefront of evolving technologies.
